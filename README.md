@@ -15,4 +15,4 @@ Kingston Technology Corporation is an American multinational computer technology
 
 It is the largest independent producer of DRAM memory modules, owning approximately 68% of the third-party worldwide DRAM module market share in 2017, according to DRAMeXchange.[3] In 2018 the company generated $7.5 billion in revenue and made #53 on the Forbes Lists of "America's Largest Private Companies 2019."[4] Kingston serves an international network of distributors, resellers, retailers and OEM customers on six continents. The company also provides contract manufacturing and supply chain management services for semiconductor manufacturers and system OEMs.
 Pokémon[a][1][2][3] (an abbreviation for Pocket Monsters[b] in Japan) is a Japanese media franchise managed by The Pokémon Company, a company founded by Nintendo, Game Freak, and Creatures.
-
+Dinosaurs are a diverse group of reptiles[note 1] of the clade Dinosauria.
